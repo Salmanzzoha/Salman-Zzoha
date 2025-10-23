@@ -49,7 +49,7 @@ Outside academics, I’m deeply involved in creative and community-focused initi
 
 - 💼 [LinkedIn](https://www.linkedin.com/in/salmanzzoha)  
 - 🐙 [GitHub](https://github.com/salmanzzoha)  
-- ✉️ **Email:** salmanzoha062@gmail.com  
+- ✉️ **Email:** salmanzoha962@gmail.com  
 
 ---
 
